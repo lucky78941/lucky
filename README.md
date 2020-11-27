@@ -1,0 +1,2 @@
+# lucky
+God is gerat
